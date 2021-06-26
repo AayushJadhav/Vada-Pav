@@ -1,0 +1,16 @@
+# Ingredients for Vada pav:
+- 350 grams potatoes or 2 medium to large sized potatoes
+- 6 to 7 garlic – small to medium-sized
+- 1 to 2 green chillies
+- 1/2 teaspoon mustard seeds
+- 1 pinch asafoetida (hing)
+- 1/8 teaspoon turmeric powder
+- 7 to 8 curry leaves
+- 1 to 2 tablespoons chopped coriander leaves (cilantro leaves)
+- salt as required
+- 1 to 1.25 cups gram flour (besan)
+- 1 pinch asafoetida (hing)
+- 1/8 teaspoon turmeric powder
+- 1 pinch baking soda – optional
+- 1/2 cup water or add as required
+- salt as required
